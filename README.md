@@ -1,19 +1,19 @@
-# NyanBot-V2 🍟
+# NyanBot-V2 <img src="https://cdn3.emoji.gg/emojis/2336-vipgif.gif" alt="NyanBot-V2" width="30"/>
 
-![NyanBot Logo](https://media.giphy.com/media/3o7aD3lJ8W1J1zFf9u/giphy.gif)
+![NyanBot2](https://media1.tenor.com/m/1EJwKI6QbkcAAAAC/purple-magical.gif#)
 
 ## Mantente Conectado
 
 Para actualizaciones, sigue nuestro canal:
 
-[**Canal de Actualizaciones**](https://whatsapp.com/channel/0029VaDVQFVL7UVd71R7bY23)
+[**Canal de Actualizaciones**](https://whatsapp.com/channel/0029VaDVQFVL7UVd71R7bY23)<img src="https://cdn3.emoji.gg/emojis/4045-crown.gif" alt="Channel" width="40"/>
 
-Contáctame:
+Probar Bot:
 
 [**WhatsApp**](https://wa.me/samu330)
 
 ---
 
-![Animación de NyanCat](https://media.giphy.com/media/13HgwGs2b6b5Gg/giphy.gif)
+[***Samu330***](https://samu330.com)<img src="https://cdn3.emoji.gg/emojis/3653-animegirl-dance.gif" alt="Samu" width="60"/>
 
 ---
