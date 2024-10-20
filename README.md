@@ -12,6 +12,10 @@ Probar Bot:
 
 [**WhatsApp**](https://wa.me/samu330)
 
+Grpo de WhatsApp:
+
+[**NEW**](https://chat.whatsapp.com/GtG0Q6rBVTTGAz8GmfS3e1)<img src="https://cdn3.emoji.gg/emojis/64042-vermillionheart.gif" alt="Samu" width="40"/>
+
 ---
 
 [***Samu330***](https://samu330.com)<img src="https://cdn3.emoji.gg/emojis/3653-animegirl-dance.gif" alt="Samu" width="60"/>
